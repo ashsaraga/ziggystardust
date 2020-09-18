@@ -50,4 +50,11 @@ Jacksonville Community Pet Cinic, Beaches
 335 11th Ave N, Jacksonville Beach, FL 32250
 ```
 
-  - Dr. Lylita Trujillo (if available)
+  - Dr. Lylita Trujillo has dealt with Ziggy the most: she was Ziggy's primary while dealing with the hormonal issues and for the spay, so she'll know Ziggy best.
+  - If they need the info to look up Ziggy's records, my last name (`saraga`) should be sufficient, though they may also ask for my phone number (which you've got and I don't really want to put on the internet, lol).
+  
+---
+
+# Thank You!!
+
+Thank-you so so much for watching over Ziggy while we're gone -- it certainly makes leaving her behind a hell of a lot easier, and you have my appreciation.  Call or text literally any time if you have any questions or concerns, and cute photos are absolutely always welcome.
