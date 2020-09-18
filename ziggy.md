@@ -2,7 +2,7 @@
 There's no reason to expect Ziggy should need special care, but in an emergency here's what I'd do:
  
   1. if life-threatening, Mandarin has an pet Emergency Room and hotline: **904-268-4118**;
-  2. if not life-threatening, call Ash or Ryan;
+  2. next, or if not life-threatening, call Ash or Ryan;
   3. if Ash and Ryan are both unreachable, and the issue is urgent, try calling her vet at **904-694-0541**;
   4. if the issue is non-urgent, and seems like it can wait a while, wait for Ash or Ryan to call back.
 
