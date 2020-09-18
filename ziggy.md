@@ -22,7 +22,7 @@ Ziggy's food sitch is pretty simple, same thing morning and night, and it's all 
 _Ideally_ you shouldn't have to do anything with the litter box, but just in case, I've left **two cat litter buckets nearby: one has the scoop, poop bags and such, the other is actually just cat litter.**  If it starts to get smelly, incense does a good job of masking the scent.
 
 ## Ziggy Makes a Mess 
-Ziggy's been pretty good about using the cat box, but every once in a while decides to relieve herself elsewhere, most often in piles of clothing.  Not really sure why yet, but regardless, **there's a red spray bottle of "Nature's Miracle" under the sink** that's safe on most surfaces and will breakdown the cat odors as it cleans.
+Ziggy's been pretty good about using the cat box, but every once in a while decides to relieve herself elsewhere, most often in piles of clothing.  Not really sure why yet, but regardless, **there's a red spray bottle of "Nature's Miracle" under the kitchen sink** that's safe on most surfaces and will breakdown the cat odors as it cleans.
 
 ---
 
