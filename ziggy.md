@@ -44,8 +44,10 @@ Ziggy is microchipped, the number for which is registered with her vet and 2 onl
   - [Michelson Found Animals Registry](https://www.foundanimals.org/microchip-registry/owners/)
 
 ### Veterinarian
-  - Dr. Lylita Trujillo (if available)
-
-**Jacksonville Community Pet Cinic, Beaches**
+```
+Jacksonville Community Pet Cinic, Beaches
 (904)-694-0541
 335 11th Ave N, Jacksonville Beach, FL 32250
+```
+
+  - Dr. Lylita Trujillo (if available)
