@@ -11,7 +11,7 @@ There's no reason to expect Ziggy should need special care, but in an emergency 
 # Care & Upkeep 
 
 ## Food, Schedule, & Quantity 
-Ziggy's food sitch is pretty simple, same thing morning and night, and it's all in the left-most cabinet of the island, top shelf.
+Ziggy's food sitch is pretty simple, same thing morning and night, and it's all in the left-most cabinet of the island, top shelf.  She uses the same water bowl as Leela, and her food bowl lives on the bottom shelf of the printer cart.
 
 ### Morning || Evening 
   - time: 0815 || 1815
